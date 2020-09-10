@@ -1,1 +1,0 @@
-VanGogh - my favorite artist
